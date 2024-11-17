@@ -11,26 +11,13 @@ DNI
 - Basic DNI criteria
 - Hardshippers
 
-I'm perfectly alright with homophobes or open LGBTQ+ as long as you don't force your opinions.
-We all have our own opinions in things, So let's keep our conversations humane and civilized.
+Humane and civilized.
 
 Interests:
 - Epic The Musical
-- History
-- Psychology
-- Victorian era
-
-Dislikes:
-- Worms.
-
-Sorry for the long introduction, look, if you scroll, they turn purple. (Or pink?)
-
-🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵
-🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴
-🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵
-🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴
-🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵
-
+- Human Psyche
+- Victorian Era
+- Medieval Era
 <!--
 **EonOfCatastrophe/EonOfCatastrophe** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
