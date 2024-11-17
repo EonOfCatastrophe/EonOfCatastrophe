@@ -24,11 +24,12 @@ Dislikes:
 
 Sorry for the long introduction, look, if you scroll, they turn purple. (Or pink?)
 
-🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵
-🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴
-🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵
-🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴
-🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵
+🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵
+🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴
+🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵
+🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴
+🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵🔴🔵
+
 <!--
 **EonOfCatastrophe/EonOfCatastrophe** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
