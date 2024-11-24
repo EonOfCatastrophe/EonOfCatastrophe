@@ -1,6 +1,6 @@
 Hello, mate! Call me Toast. (Or pony names if you prefer them)
 
-For starters, I'm a pretty nice guy, but of course everyone has their own set of boundaries. I'm usually active on PT but often semi-afk. Or possibly trolling people or messing around.
+For starters, I'm a pretty nice guy, but of course everyone has their own set of boundaries. I'm usually active on PT but often semi-afk. Though, possibly messing around.
 
 You can approach me, though I suggest whispering. I'd miss out on the actual message.
 
