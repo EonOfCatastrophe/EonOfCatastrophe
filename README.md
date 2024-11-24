@@ -1,16 +1,18 @@
-Hello, mate! Call me Toast! (Or pony names if you prefer them)
+Hello, mate! Call me Toast. (Or pony names if you prefer them)
 
-For starters, I'm a pretty nice guy, but of course everyone has their own set of boundaries. I'm usually active on PT but also .. usually semi-afk. Sometimes trolling people or messing around.
+For starters, I'm a pretty nice guy, but of course everyone has their own set of boundaries. I'm usually active on PT but often semi-afk. Or possibly trolling people or messing around.
 
-You can approach me anytime, though I suggest whispering. I'd miss out on the actual message.
+You can approach me, though I suggest whispering. I'd miss out on the actual message.
 
-Any form of interaction is alright, but kindly refrain from kissing and cuddling. Not too comfortable with it even for friends.
+Any form of interaction is okay, but kindly refrain from kissing and cuddling. Not too comfortable with it, even with friends.
 
 DNI
 - Flying penises.
-- Minors
+- Minors.
 - Basic DNI criteria
-- Pro-shippers
+- Proshippers.
+
+I don't hide much people, so we're cool.
 
 Interests:
 - Epic The Musical
