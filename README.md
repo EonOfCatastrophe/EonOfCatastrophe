@@ -1,4 +1,4 @@
-Hello, mate! Call me Toast! (Or you can call me that one fool, heh-heh.)
+Hello, mate! Call me Toast! (Or pony names if you prefer them)
 
 For starters, I'm a pretty nice guy, but of course everyone has their own set of boundaries. I'm usually active on PT but also .. usually semi-afk. Sometimes trolling people or messing around.
 
@@ -10,7 +10,7 @@ DNI
 - Flying penises.
 - Minors
 - Basic DNI criteria
-- Hardshippers
+- Pro-shippers
 
 Interests:
 - Epic The Musical
