@@ -4,7 +4,7 @@ For starters, I'm a pretty nice guy, but of course everyone has their own set of
 
 You can approach me, though I suggest whispering. I'd miss out on the actual message.
 
-Any form of interaction is okay, but kindly refrain from kissing and cuddling. Not too comfortable with it, even with friends.
+Any form of interaction is okay, but kindly refrain from kissing and cuddling. Not too comfortable with it, even with some friends. (unless we're close though.)
 
 DNI
 - Flying penises
