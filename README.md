@@ -7,19 +7,21 @@ You can approach me, though I suggest whispering. I'd miss out on the actual mes
 Any form of interaction is okay, but kindly refrain from kissing and cuddling. Not too comfortable with it, even with friends.
 
 DNI
-- Flying penises.
-- Minors.
+- Flying penises
+- Minors
 - Basic DNI criteria
-- Proshippers.
+- Proshippers
+       - Solo-leveling fans.
 
-I don't hide much people, so we're cool.
+I don't hide much people, so no worries my lad(or lass).
 
 Interests:
 - Epic The Musical
-- Human Psyche
+- Philosophy
 - Victorian Era
 - Medieval Era
 - Literature
+- Ants
 
 Dislikes:
 - Worms.
