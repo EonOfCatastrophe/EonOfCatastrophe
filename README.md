@@ -11,7 +11,8 @@ DNI
 - Minors
 - Basic DNI criteria
 - Proshippers
-       - Solo-leveling fans.
+
+  - Solo-leveling fans.
 
 I don't hide much people, so no worries my lad(or lass).
 
